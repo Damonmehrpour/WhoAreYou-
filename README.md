@@ -15,9 +15,9 @@ Compassionate understanding of what it is like to experience memory loss, being 
 
 
 # 5. team members
-Yiyuan, Juho , Mariagiovanna, Damon (mahdi)
-yiyuanyuan131@gmail.com
-jskalliokoski@gmail.com
+Yiyuan, Juho , Mariagiovanna, Damon (mahdi) <br>
+yiyuanyuan131@gmail.com <br>
+jskalliokoski@gmail.com <br>
 Damons3m@gmail.com
 
 
